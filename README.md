@@ -1,2 +1,3 @@
 # hello-world
-New repository, same alphabet 
+
+Pun grandmaster, practicing in Form VII where both the light and the dark puns meet. 
